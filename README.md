@@ -1,1 +1,1 @@
-#Art 210  |  LAST Magazine: CADRE Issue
+# Art 210  |  LAST Magazine: CADRE Issue
